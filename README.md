@@ -31,7 +31,7 @@
 
 ### More about me
 
-<sub>✏️ **폰트 디자이너 출신** ✏️ → 타이포그래피를 통한 시각적 커뮤니케이션에 관심이 많습니다.</sub>  
+<sub>✏️ **폰트 디자이너 활동 경험** ✏️ → 타이포그래피 위계 정리를 통한 시각적 커뮤니케이션에 관심이 많습니다.</sub>  
 <sub>*Former font designer → Emphasize visual communication based on deep typography knowledge.*</sub>  
 
 <sub>🙌 **디자이너와의 소통, 협업을 즐깁니다.** 🙌 → 피그마를 적극 활용해 소통하는 과정을 즐깁니다. 다양한 디자이너들과 원활한 커뮤니케이션이 가능하며, 더 나은 사용자 경험에 대한 고민을 함께합니다.</sub>  
